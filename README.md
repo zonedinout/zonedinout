@@ -1,4 +1,4 @@
-# 👋 Hey, I’m @zonedinout  
+# 👋 Hey, I’m @NoBrainer  
 ### 🚀 Web3 Developer | AI Enthusiast | Creative Technologist  
 
 🔹 **Building:** AI-powered tools, Web3 growth strategies, and immersive digital experiences  
